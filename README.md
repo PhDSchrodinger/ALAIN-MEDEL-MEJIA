@@ -10,5 +10,5 @@ I am a curious and entrepreneurial individual, passionate about working towards 
 
 Throughout various projects, I have demonstrated resilience, negotiation skills, collaboration, teamwork, and the ability to train other team members. While I have often achieved my goals, I understand that not every attempt is successful. I am now eager to offer my skills to a health-related startup and continue learning new things.
 
-emprendedoralain@gmail.com
+emprendedoralain@gmail.com  
 https://www.linkedin.com/in/alain-medel-mej%C3%ADa-302674109/
